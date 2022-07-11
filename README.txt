@@ -1,1 +1,1 @@
-Esse projeto visa mostrar para você que sou capaz e que sim você deveria me contratar :)
+Esse projeto visa mostrar o meu domínio na linguagem e que sim você deveria me contratar :)
