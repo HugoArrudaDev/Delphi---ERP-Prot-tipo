@@ -1,0 +1,1 @@
+Esse projeto visa mostrar para você que sou capaz e que sim você deveria me contratar :)
